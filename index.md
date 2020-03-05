@@ -1,3 +1,3 @@
-# AFRORAYDUDE.GITHUB.IO
+# afroraydude's gh
 
-HI
+placeholder just use the project sites
